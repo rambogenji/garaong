@@ -1,0 +1,2 @@
+# garaong
+Kegelapan
